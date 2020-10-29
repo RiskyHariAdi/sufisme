@@ -31,3 +31,4 @@
 
 ![dunia](poto/dunia.png)
 
+# SEKIAN DARI SAYA TERIMA KASIH <br>
