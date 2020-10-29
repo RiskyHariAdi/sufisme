@@ -17,3 +17,17 @@
 
 ![antar](poto/antar.png) <br>
 
+# Asal usul Sufisme <br>
+
+*Tasawuf muncul setelah kematian **Nabi Muhamad pada tahun 632**, namun tidak berkembang menjadi ajaran yang solid sampai abad ke-12.* <br>
+
+*Orde terbentuk di sekitar pendiri **(spiritual)**, yang mendapatkan status orang suci dan tempat-tempat suci yang dibangun atas nama mereka. Ada puluhan orde dan cabang sufi.* <br>
+
+*Sufisme menyebar ke seluruh dunia **(Muslim)**, menjadi komponen utama praktik keagamaan banyak orang dari Indonesia dan Asia Selatan hingga Afrika dan Balkan.* <br>
+
+*Pemuka sufi terkadang dekat dengan penguasa yang berkuasa seperti Kekhilafahan (Turki Utsmani), yang membantu penyebaran dan pengaruhnya.* <br>
+
+*Saat menyebar, Sufisme sering menyesuaikan diri dan memasukkan kepercayaan dan kebiasaan lokal yang membuatnya populer, namun kemudian akan dipandang oleh kelompok ekstremis Islam sebagai (bid’ah atau aliran sesat).* <br>
+
+![dunia](poto/dunia.png)
+
