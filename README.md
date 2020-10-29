@@ -33,4 +33,4 @@
 
 ![dunia](poto/dunia.png)
 
-# SEKIAN DARI SAYA TERIMA KASIH <br>
+# ولله توفيق والهداية وصل السلام عليكم ورحمة الله وبركاته <br>
